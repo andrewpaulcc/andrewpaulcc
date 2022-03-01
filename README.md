@@ -23,7 +23,9 @@ I am no stranger to the 🇲🇽 **Spanish** Language, though only as far as pra
 I am an ☦️ **Orthodox Christian** under the 🇬🇷 **Greek Orthodox Archdiocese of America**.\
 As per Internet custom, my pronouns are **he/him** in English & **sé** in Irish.
 
-**Fun Fact:** I am convinced I have been cursed by Faeries to never have an enjoyable Valentine's Day regardless of my Relationship Status. 🧚
+	🧚 Fun Fact: 🧚
+	I am convinced I have been cursed by Faeries
+	to never have an enjoyable Valentine's Day regardless of my Relationship Status.
 
 <!-- Contact Information -->
 ---
