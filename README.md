@@ -25,7 +25,6 @@ As per Internet custom, my pronouns are **he/him** in English & **sé** in Irish
 
 	🧚 Fun Fact: 🧚
 	I am convinced I have been cursed by Faeries
-	to never have an enjoyable Valentine's Day regardless of my Relationship Status.
 
 <!-- Contact Information -->
 ---
