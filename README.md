@@ -9,10 +9,9 @@
 <!-- Work & Location -->
 ---
 I am currently living and working out of 🏖️ **Corpus Christi, Texas**,\
-I am pursuing my Associates in History through 🌊 **Del Mar College**\
-as well as taking Computer Science Courses through CS50 & edX
+I am pursuing my Associates in Journalism through 🌊 **Del Mar College**\
 
-I am a Volunteer Writer for the 🇺🇸 **Dawn of America** Mod for Fallout 4.
+I am the Editor-in-Chief for the Foghorn Newspaper
 
 <!-- About Me Info -->
 ---
