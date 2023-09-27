@@ -15,9 +15,8 @@ I am the Editor-in-Chief for the Foghorn Newspaper
 
 <!-- About Me Info -->
 ---
-I am a Native 🇬🇧 **English** speaker, with a rudimentary understanding of the 🇮🇪 **Irish** Language,\
-currently teaching myself the latter.\
-I am no stranger to the 🇲🇽 **Spanish** Language, though only as far as practical interaction demands of me.
+I am a Native 🇬🇧 **English** speaker,\
+I am chipping away at learning the 🇮🇪 **Irish** Language and 🇲🇽 **Spanish** Language.\
 
 I am an ☦️ **Orthodox Christian** under the 🇬🇷 **Greek Orthodox Archdiocese of America**.\
 As per Internet custom, my pronouns are **he/they** in English & **sé** in Irish.
