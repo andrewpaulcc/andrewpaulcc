@@ -20,12 +20,9 @@ currently teaching myself the latter.\
 I am no stranger to the 🇲🇽 **Spanish** Language, though only as far as practical interaction demands of me.
 
 I am an ☦️ **Orthodox Christian** under the 🇬🇷 **Greek Orthodox Archdiocese of America**.\
-As per Internet custom, my pronouns are **he/him** in English & **sé** in Irish.
-
-	🧚 Fun Fact: 🧚
-	I am convinced I have been cursed by Faeries
+As per Internet custom, my pronouns are **he/they** in English & **sé** in Irish.
 
 <!-- Contact Information -->
 ---
-For Business Inquiries: mr.andrewpaul.business@gmail.com\
+For Business Inquiries: andrewpol.work@gmail.com\
 Post Address: ⛔ Unavailable at this time ⛔
