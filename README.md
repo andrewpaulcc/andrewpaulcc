@@ -6,7 +6,7 @@ I have approximate knowledge of many things.
 <!-- Work & Location -->
 ---
 I am currently living and working out of 🏖️ **Corpus Christi, Texas**,\
-I am pursuing my Associates in Journalism through 🌊 **Del Mar College**\
+I am pursuing my Associates in Journalism through 🌊 **Del Mar College**
 
 <!-- What I do -->
 ---
